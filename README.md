@@ -30,7 +30,7 @@
 
 ## 📫 How to Reach Me:
 - 🌐 [LinkedIn](https://www.linkedin.com/in/ayfajfazlani)  
-- 📧 Email: ayfaj.fazlani@example.com  
+- 📧 Email: ayfajfazlani20@gmail.com  
 
 ## 😄 Pronouns:
 - He/Him  
